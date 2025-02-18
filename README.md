@@ -1,10 +1,11 @@
 - 👋 Hi, I’m @foxinabox5000
-- 👀 I’m interested in   
+- 👀 I’m interested in riz
 - 🌱 I’m currently learning cc++++
 - 💞️ I’m looking to collaborate on riz
 - 📫 How to reach me riz
 - 😄 Pronouns: patato tomato
 - ⚡ Fun fact: i riz
+- rizrzirizrizzirzrzzizizrizrzzirirzzzirrzirzizizizirzririzirzirrizrizirzrizriirzrizizziz
 
 <!---
 foxinabox5000/foxinabox5000 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
